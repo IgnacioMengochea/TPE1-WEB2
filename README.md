@@ -1,4 +1,4 @@
-Integrantes del grupo: Ignacio Mengochea (ignamengochea@gmail.com) y Facundo Castro . 
+Integrantes del grupo: Ignacio Mengochea (ignamengochea@gmail.com) y Facundo Castro (facucastrosl@gmail.com). 
 
 Temática del TPE: Cine.
 
